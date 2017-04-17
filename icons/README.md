@@ -1,1 +1,1 @@
-Icon provided courtesy of `icons8.com`
+Icons designed by business from Flaticon
